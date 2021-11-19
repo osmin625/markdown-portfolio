@@ -1,0 +1,1 @@
+![Image of Snowboard](https://us.123rf.com/450wm/aerialvision/aerialvision1912/aerialvision191200300/135904467-%EC%8B%A0%EC%84%A0%ED%95%9C-%EB%88%88%EC%97%90%EC%84%9C-%EC%8A%A4%EB%85%B8%EC%9A%B0-%EB%B3%B4%EB%93%9C%EC%99%80-%ED%95%A8%EA%BB%98-%EC%A0%90%ED%94%84.jpg?ver=6)
